@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* fishing
+* Hunting
+* quality time with my wife and dog. 
+*  welding
+*  driving around in the country or new places. 
